@@ -58,4 +58,4 @@ Ensure the device has sufficient storage space.
 
 Support
 
-For any issues related to APK distribution, contact Coldshell support at +919818885799 or visit www.coldshell.in.
+For any issues related to APK distribution, contact Coldshell support at +919818885799 or visit www.coldshell.in. https://www.coldshell.in/product-category/commercial-kitchen-equipment/
